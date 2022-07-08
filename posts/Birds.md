@@ -1,6 +1,6 @@
 ---
 title: ' Pyaari Birds'
-date: '2022-06-28'
+date: '2022-07-8'
 ---
 
 Who doesn't love birds. Their big cute eyes and their slender body and small feet are to be amazed at! Some are the most intelligent such as Crow, parrot and some are as beautiful as the peacock.
