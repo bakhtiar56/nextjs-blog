@@ -1,5 +1,5 @@
 ---
-title: '_Pyaari_ Birds'
+title: ' Pyaari Birds'
 date: '2022-06-28'
 ---
 
