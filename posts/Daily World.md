@@ -1,2 +1,8 @@
+---
+title: 'Israel-Palestine Conflict'
+date: '2022-07-8'
+---
 The Israel-Palestine conflict has been raging for such a long time that the world has forgotten it. Israel, being the primary agressor, is continously invading
-Palestinian Land 
+Palestinian Land, taking away properties they are entitled to and wreaking havoc on Palestinians. Who is in the wrong here? Can this issue be resolved? I think otherwise. Lets deep dive into the history to see what really happened that triggered such fragile situation present day.
+
+Before, India and Pakistan achieved independence, the British were in control over them. The British were not just rulers of the subcontinent but also of many other regions in the world like the Middle East, present day Hong Kong, France. In the Middle East, British ruled over Palestine, which back then was entirely region of Palestinians(comprising of mainly muslims), although there were some jews present. After India got independence, the British announced the region of Palestine to be split into 3 parts: one part called Palestine, second one Israel(comprising of jews) and the third part, which was Jerusalem(an important religious site for both Muslims and Jews) to be awarded to United Nations Organization. Although the British were leaving, they still had some tricks up their sleeves. Just like they divided Pakistan into two geographically far away areas so that they might separate, and they did in the war of 1971, they also divided Palestine irregularly. It was not like North and South Korea where all of the North Korea was unified and all of the South Korea was one piece with a distinct line of border between the two pieces, instead, all of the Palestine and Israel was scattered land arranged randomly. 
