@@ -1,5 +1,5 @@
 ---
-title: "Two Forms of Pre-rendering"
+title: Daily Pakistan 2"
 date: "2022-08-02"
 ---
 
