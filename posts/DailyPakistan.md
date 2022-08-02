@@ -1,0 +1,16 @@
+---
+title: 'Daily Pakistan 2'
+date: '2022-08-2'
+---
+
+The economic and poltical situation in the country today is like a a ticking time bomb. With every passing second, the inflation keeps on rising drastically and the political tensions keep arising.  
+
+The primary reason behind the inflation is the International Monetary Fund(IMF). It is the devil in disguise. It has hold on Pakistan's current economy and is playing with it like puppets. It wants to bring Pakistan to its knees and only then will relieve the loan funds to Pakistan. But then it would be too late. As now, every fund that Pakistan earns will go to IMF to repay the Loan and in turn Pakistan would become enslaved to IMF.  
+
+There is also the Ukraine-Russia conflict which is raging nowadays. Primary reason behind this conflict is the resilience of Ukraine to join NATO. It surpises me that Ukraine's population is in favor of the Ukranian president in joining NATO. Several of European Nations have joined NATO, which is a America's 'trojan horse' to conquer the world. Several years have gone by and Russia did not attack Ukraine and so Ukraine should have responded the same and not join NATO, which is an existential threat to Russia. Several Thousands casualties have been reported and still Ukraine is fighting Russia with its broken arms. Yet the egoistic president, keeps on falling into Pakistan's arms.  
+
+Does this mean that Pakistan's future is insecure? Not if we play the right cards. The inflation can be cut right in its tracks by flow of money throughout the population of Pakistan. The capitalist mindset has to be forgotten and more socialist strategy has to be implemented. Perhaps making Pakistan as socialist republic like Germany can help revive Pakistan. Instead of the capital getting hoarded in bank accounts, it must be given away as a donation or must be reinvested so that employment opportunities keep on rising and thus inflation will drop rapidly.  
+
+We need a brave Pakistani poltician like Zulfiqar Ali Bhutto, who although took power into his own hands, was unscared to the world powers and despite the increasing backlash from the UN and the world powers, made Pakistan a nuclear power, a force to be deterred with. 
+
+If anyone thinks that we will give up in this current situation Pakistan is facing, we are here to prove them wrong. There is nothing in this world that cannot be achieved by putting in serious hardwork and concrete determination. We need to resolve our differences and work together for the revival of Pakistan. Perhaps this is the time, when we overcome the religious bias and consider everyone as equal. Perhaps our oldest enemy is a friend in disguise. And for God's sakes, please stop raising the issue of Kashmir. Its original prince ruled in favor of India so it is none of Pakistan's concerns to raise issues out of it and the politicans should stop exploiting it in favor of party support. Withdrawing the Pakistan National Chess team from the international FIDE tournament in India because India sent its torch relay through Kashmir, is the kind of nonsense behaviour, one does not expect from well educated people of Pakistan. It is like Pakistan is striking axe on its own foot. For once, forget about Kashmir, and think about our dear Pakistan.
