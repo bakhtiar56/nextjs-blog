@@ -1,6 +1,6 @@
 ---
-title: 'Daily Pakistan 2'
-date: '2022-07-8'
+title: 'The magic of fragrances'
+date: '2022-06-26'
 ---
 
 The economic and poltical situation in the country today is like a a ticking time bomb. With every passing second, the inflation keeps on rising drastically and the political tensions keep arising.  
