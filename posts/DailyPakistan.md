@@ -1,6 +1,6 @@
 ---
 title: 'Daily Pakistan 2'
-date: '2022-08-2'
+date: '2022-08-02'
 ---
 
 The economic and poltical situation in the country today is like a a ticking time bomb. With every passing second, the inflation keeps on rising drastically and the political tensions keep arising.  
