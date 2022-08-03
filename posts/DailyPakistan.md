@@ -1,5 +1,5 @@
 ---
-title: Daily Pakistan 2"
+title: Daily Pakistan 2
 date: "2022-08-02"
 ---
 
