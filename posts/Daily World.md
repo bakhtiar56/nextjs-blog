@@ -1,6 +1,6 @@
 ---
 title: 'Israel-Palestine Conflict'
-date: '2022-07-8'
+date: '2022-07-08'
 ---
 The Israel-Palestine conflict has been raging for such a long time that the world has forgotten it. Israel, being the primary agressor, is continously invading
 Palestinian Land, taking away properties they are entitled to and wreaking havoc on Palestinians. Who is in the wrong here? Can this issue be resolved? I think otherwise. Lets deep dive into the history to see what really happened that triggered such fragile situation present day.
